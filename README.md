@@ -1,2 +1,3 @@
-# Covid-19-testing-booths-in-China
-# Covid-19-testing-booths-in-China
+# 核酸亭去哪了？
+# ——中國城市空間中的廢棄物、閾限憶景與新冠遺產
+
