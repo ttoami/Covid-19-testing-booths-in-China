@@ -18,8 +18,8 @@ For any inquiries, please contact:\
 
 ## 原文 Reference
 
-李紅濤、劉于思、戴凡愷（2026）。〈核酸亭去哪了？------中國城市空間中的廢棄物、閾限憶景與新冠遺產〉，《傳播與社會學刊》，75，頁 x--x。
+李紅濤、劉于思、戴凡愷（2026）。〈核酸亭去哪了？------中國城市空間中的廢棄物、閾限憶景與新冠遺產〉，《傳播與社會學刊》，75，頁 1--36。
 
-Li, H., Liu, Y., & Dai, F. (2026). *Where did the COVID-19 testing booths go? Waste, liminal memoryscape, and the pandemic heritage in China's urban space.* *Communication and Society*, 75, xx--xx.
+Li, H., Liu, Y., & Dai, F. (2026). *Where did the COVID-19 testing booths go? Waste, liminal memoryscape, and the pandemic heritage in China's urban space.* *Communication and Society*, 75, 1--36.
 
 ------------------------------------------------------------------------
